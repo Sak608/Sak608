@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sak608&label=Profile%20views&color=0e75b6&style=flat" alt="sak608" /> </p>
 
-- 📫 How to reach me **sakshiraj708@gmail.com**
+- 📫 How to reach me **sakshi8sinha2002@gmail.com**
 
 
 
